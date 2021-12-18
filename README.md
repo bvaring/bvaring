@@ -1,4 +1,4 @@
-- 🖕🏼 Hi, I’m @bvaring
+-  Hi, I’m @bvaring
 - 💻 I spend way to much time on my computer
 - 💩 I still don't know 💩
 - 🦓 See ya...
